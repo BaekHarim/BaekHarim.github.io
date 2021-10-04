@@ -1,1 +1,0 @@
-# BaekHarim.github.io
